@@ -1,0 +1,3 @@
+**85/365** Cu toţii ştim deja, că chiar dacă avem acces la informaţie, în mare parte lumea foloseşte internetul pentru chestii precum reţelile de socializare, YouTube, etc., aşa că miturile continuă să existe. Unul din miturile vechi este despre faptul că **părul creşte mai des dacă te razi**. Totuşi, acest fapt nu are nimic cu realitatea, pur şi simplu când părul este ras, vârful natural al acestuia care este mai subţire este tăiat, astfel că rămâne partea mai groasă a firului, ceea ce face ca barba sau mustăţile, sau părul din altă parte a corpului, să pară mai des. Sper că nu mai e nevoie să scriu şi despre miturile încâlcirii liliacului în păr sau despre faptul că struţul nu-şi bagă capul în nisip?
+
+![Poză simbol](image-1.jpg)
