@@ -1,0 +1,3 @@
+**126/365 Coca Cola** este probabil cea mai cunoscută băutură răcoritoare carbogazoasă. Deşi, cum am mai scris deja, este o băutură răcoritoare, iniţial, Coca Cola era folosită pe post de medicament şi a fost inventată de John Stith Pemberton în 1885. Acesta susţinea că băutura poate vindeca multe boli, printre care dependenţa de morfină, neurastenia, durerile de cap, şi chiar impotenţa! Interesant este faptul că în primele opt luni, erau vândute în mediu câte 9 sticle zilnic. În anul 1888, John Pemberton vinde drepturile asupra băuturii, iar noii deţinători au început a produce băutura care conţinea frunze de coca, care însă erau curăţate preventiv de cocaină.
+
+![Coca Cola](image-1.jpg)
