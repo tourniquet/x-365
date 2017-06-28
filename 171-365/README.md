@@ -1,0 +1,3 @@
+**171/365** Dacă sunteţi un fan înflăcărat a filmelor seriale şi aţi dori să vizionaţi unul de care să nu vă mai săturaţi, să ştiţi că există câteva, printre care, deţinătorul recordului, serialul "Guiding Light", care a rulat în perioada 30 iunie 1952 şi 18 septembrie 2009. Totuşi, istoria acestui serial începe cu 15 ani mai devreme, când era transmis la radiou. Primii zece ani, serialul a fost transmis la NBC Radio, apoi încă cinci ani la postul de radio CBS, după care a apărut pe micile ecrane. În timpul celor 57 de ani de existenţă, au fost transmise 18262 de episoare, care ar necesita 169 de zile 10 ore şi 15 minute pentru a putea fi vizionate în totalitate.
+
+![Guiding Light](image-1.jpg)
