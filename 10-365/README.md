@@ -1,0 +1,3 @@
+**10/365** Chiar dacă majoritatea erorilor de programare sunt uşor de rezolvat or nu aduc mari pagube, unele totuşi, pot duce la catastrofe a căror valoarea pot depăşi şi câteva sute de miloane de dolari. Astfel, la 4 iunie 1996, la a 39-a secundă de zbor explodează racheta purtătoare Ariane 5. Dezvoltatorii au folosit acelaşi software care a fost scris mai devreme pentru Ariane 4, dar din cauza motorului mult mai puternic, acesta a generat un bug, şi anume la convertarea numerelor din 64 de biţi în 16 biţi sistemul a fost pur şi simplu supraîncărcat. Valoarea aproximativă a catastrofei se estimează la peste 370 milioane de dolari SUA.
+
+Video: https://youtu.be/qnHn8W1Em6E
