@@ -1,0 +1,3 @@
+**20/365 Sindromul studentului la medicină** este o tulburare psihomatică, care apare la studenţii universităţilor de medicină, mai ales în primii ani. Această afecţiune îi determină să creadă că suferă de bolile despre care tocmai învaţă. Deşi sănătoşi, aceştia ajung să-şi facă analize minuţioase, dar inutile, doar pentru a infirma bolile pe care îşi închipuie că le are. Bolile în care se regăseşte studentul, sunt fie cele cu care se întâlneşte la stagiile clinice, fie cele care sunt studiate la moment. Deşi unii consideră situaţia ca fiind comică, experţii afirmă că nu e de glumit. Problemele de sănătate imaginate de un student, pot provoca anxietate reală.
+
+![Poză simbol](image-1.jpg)

@@ -1,0 +1,3 @@
+**24/365** Un cangur la maturitate poate ajunge până la 3 metri înălţime şi 150kg greutate. Deşi nu este nici pe departe un animal mic, totuşi la naştere, un cangur nu depăşeşte lungimea de 25mm, fiind cel mai mic animal mamifer în comparaţie cu un matur. Sarcina este foarte scurtă, durând între 27 şi 40 de zile, iar puiul se naşte orb şi fără blană. Buzele puiului concresc cu mamelonul mamei şi rămâne astfel prins până la dezvoltarea completă, care are loc după 8-9 luni. După aceasta, puiul se hrăneşte singur, întorcându-se în pungă doar în caz de primejdie, iar maturitatea completă are loc aproximativ după 17 luni, timp în care se hrăneşte inclusiv şi cu laptele mamei.
+
+![Cangur nou născut](image-1.jpg)

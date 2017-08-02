@@ -1,0 +1,3 @@
+**19/365** Deşi nu a existat el însuşi în realitate, există casa unde acesta a locuit. Casa de pe Baker Street 221B astăzi este muzeul unui personaj imaginar, creat de sir Arthur Conan Doile. Personaj cunoscut practic în toată lumea drept cel mai iscusit detectiv - **Sherlock Holmes**. Apare pentru prima dată în anul 1887, în nuvela "Studiu în roşu", iar popularitatea îi creşte enorm când scrierile despre el apar în revista britanică lunară "Strand Magazine". Numărul total de lucrări este de 60, iar în 1964, ziarul "The Time", potrivit unor calcule, estimează vânzările povestirilor despre detectiv pe locul doi în lume, după Biblie.
+
+![Sherlock Holmes](image-1.jpg)
