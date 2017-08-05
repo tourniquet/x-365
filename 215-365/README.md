@@ -1,0 +1,6 @@
+**215/365** Sculptată în fildeş şi ornată cu aur, statuia lui Zeus este a patra minunii a lumii antice. Realizată de Phidias în jurul anului 435 î.e.n. în oraşul Olimpia, din Grecia, statuia avea o înălţime de 12m, iar pentru adăpostirea acesteia a fost construit un templu. Acesta era acoperit cu plăci de marmură, interiorul era împărţit în trei zone: de la intrare până la doua coloană era un spaţiu liber, urma un spaţiu închis până la cincea coloană, cu o balustradă de marmoră; de la a cincea coloană până la peretele de vest, era statuia lui Zeus aşezată pe un soclu din marmură albastră de Eleusis.
+După ce statuia a fost finisată în atelier, ea a fost demontată şi transportată piesă cu piesă în templu, unde a fost remontată.  Zeus este înfăţişat fiind aşezat pe un tron cu un spătar înalt, bogat decorat. În mâna dreaptă ţinea o Victorie, capul era încununat cu ramuri de măslin, iar în mâna stângă, Zeus ţinea un sceptru pe care stătea un vultur de aur.
+Publicul nu putea vedea statuia în fiecare zi. Antioh al IV-lea Epifanul, regele Siriei elenistice, a oferit templului o draperie de purpură, care a fost montată în faţa statuii şi nu era îndepărtată decât la solemnităţi.
+Se crede că statuia a fost transportată în anul 394 e.n. la Constantinopol, unde avea să fie distrusă de un incendiu în anul 475 e.n.
+
+![Statuia lui Zeus](image-1.jpg)
